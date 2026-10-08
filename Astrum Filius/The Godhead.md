@@ -1,0 +1,1 @@
+ [[The Godhead]] is a [[Primordials|Primordial]] that exists at the beginning and at the end of time, closing in the loop of time. It's appearance is quite humanoid, it has an extremely slender, thin body. It has grey skin and red carvings around it's joints on it's limbs. It's head consists of 8 hexagons, like a honeycomb, it's head is of #b0912c color.
